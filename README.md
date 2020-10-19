@@ -2,4 +2,4 @@
 
 you need help to setup the theme?? Ping me in my Discord Server
 
-[here](https://discord.gg/PbkXFeS)
+[click here to join](https://discord.gg/PbkXFeS)
