@@ -1,1 +1,1 @@
-# https-BetterDiscord-Zero-Two-Theme
+#BetterDiscord-Zero-Two-Theme
